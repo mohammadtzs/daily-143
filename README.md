@@ -4,3 +4,4 @@ hello my dear god , tnx for every breathing every second of life , i dont know t
 everythings fine , realy realy thanks my heart
 thanks for helped us for buy other lands ^_^ almost everythings rdy for next update . healthy mom necessary more than work <3 love u
 good day , good feelings
+today im still breathing and rly thanks to god
