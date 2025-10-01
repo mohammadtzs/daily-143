@@ -7,3 +7,4 @@ good day , good feelings
 today im still breathing and rly thanks to god
 god bless us
 khodaro shokr
+thanks god for watching us every moment <3
