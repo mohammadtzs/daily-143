@@ -6,5 +6,5 @@ thanks for helped us for buy other lands ^_^ almost everythings rdy for next upd
 good day , good feelings
 today im still breathing and rly thanks to god
 god bless us
-khodaro shokr
+khodaro shokr . .
 thanks god for watching us every moment <3
